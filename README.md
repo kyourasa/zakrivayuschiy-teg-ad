@@ -1,1 +1,1 @@
-https://github.com/dasha6661/zakrivayuschiy-teg-ad
+https://github.com/kyourasa/zakrivayuschiy-teg-ad
